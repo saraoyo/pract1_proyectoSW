@@ -1,4 +1,4 @@
-Sebastian Tunjuelo Luhan 
+Sebastian Tunjuelo Lujan 
 Sebastian Montoya Foronda
 Sara Camila Echeverri Arrubla
 Sara Jimenez Restrepo
